@@ -1,1 +1,0 @@
-# JuanPacheco-solo-project
